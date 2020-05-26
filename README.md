@@ -1,4 +1,4 @@
-# MWAS Music Project: Slow Beatness
+# MWAS Music Project: Revelation Song
 
 ---
 
